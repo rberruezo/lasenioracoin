@@ -1,0 +1,2 @@
+# lasenioracoin
+La Seniora Coin
